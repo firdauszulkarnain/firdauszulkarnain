@@ -1,4 +1,4 @@
-### Hi there 👋
+### MULAI dulu aja, lalu bangun yang lebih baik - Pandji Pragiwaksono
 
 
 <p align="left">
